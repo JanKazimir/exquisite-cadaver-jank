@@ -8,4 +8,6 @@ A dead body. Just my luck.
  "Well well well" she said
  "It doesn't seem you slept well tonight" She said smiling.. "Where have you been yesterday?"
 
-  Why that officer had to be there in that moment? What can I say to make myself look innocent?  
+ How can I respond to that?
+
+  Why that officer had to be there in that moment? What can I say to make myself look innocent?
