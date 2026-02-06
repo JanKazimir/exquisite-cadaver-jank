@@ -5,4 +5,4 @@ Jan's exquisite Cadaver
 A dead body. Just my luck.  
  I nod to the officer standing next to the entrance and step inside, the smell of dust and oil in the air. The warehouse is mostly empty but I can see wooden crates stacked to the sides. And of course, right in the center, a body. Just my luck...
 
- 
+  Why that officer had to be there in that moment? What can I say to make myself look innocent?  
